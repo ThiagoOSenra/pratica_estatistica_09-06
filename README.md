@@ -1,0 +1,1 @@
+# pratica_estatistica_09-06
